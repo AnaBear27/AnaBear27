@@ -1,4 +1,4 @@
-- Ana Beatriz, 17 anos.
+- Ana Beatriz, 18 anos.
 - 👀 Interessada na área tecnológica.
 - 📫 Amante de Livros.
-- 😄 3º Ensino Médio, Design Gráfico.
+- 😄 Ensino Médio, Design Gráfico.
