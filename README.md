@@ -1,4 +1,3 @@
-- Ana Beatriz, 18 anos.
 - 👀 Interessada na área tecnológica.
 - 📫 Amante de Livros.
 - 😄 Designer Gráfica.
